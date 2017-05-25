@@ -1,4 +1,4 @@
-# [Florida](https://spannam.github.io/storefront/)
+# [Provence Store Front](https://spannam.github.io/storefront/)
 <br>
 <strong>ART 254 | Kinetic Type student name: Ashton Spann <br>
 Spring 2014 | Miami University | Graphic Design instructor: Dennis Cheatham</strong>
